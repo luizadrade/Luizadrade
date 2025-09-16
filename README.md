@@ -1,4 +1,4 @@
-## oiê sou a Ana Luiza Andrade 👋
+## Oiê sou a Ana Luiza Andrade 👋
 
 - ✝
 - 🖤💢🤍
